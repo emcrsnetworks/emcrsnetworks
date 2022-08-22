@@ -1,6 +1,7 @@
 ### Hi there 👋
 
 💬 Chairs: Francisca Ortiz, Chiara Broccatelli.
+
 🌱 Council: Laura Roldan, Daniela Cialfi, Yakubu, Zoran Kovacevic. 
 
 🌻 Follow us on [Twitter](https://twitter.com/emcr_sna)!
